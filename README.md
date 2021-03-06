@@ -9,9 +9,7 @@ best
 # EVER
 ## GEVER
 ### NEVER
-__MY__
-* O
-* N
-* L
-* Y
-* YOU *
+__MY__ 
+
+здесь был игорь
+и все поменял
